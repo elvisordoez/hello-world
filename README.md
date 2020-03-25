@@ -2,4 +2,4 @@
 I'll learn java wuju
 I love this
 Is amazing 
-I'm ready for he war :v
+I'm ready for the war :v
